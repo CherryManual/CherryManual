@@ -4,7 +4,7 @@ My name is **Hanna Nevelska** and I am a Junior Manual QA Engineer
 🍒I'd like to do a project that is related to software or WEB testing.
 I love being part of communities, connecting with people of mutual interests, sharing with others the knowledge I have, and learning from others!
 
-:thought_balloon: Brainstorm with me over tech, algorithms, career, anime, and music at [**Telegram**](https://t.me/LaCoSteCherry)
+:thought_balloon: Discuss with me topics of technology, algorithms, career, anime, and music by writing to me by annanevelska84@gmail.com
 
 :star:You might also be interested in seeing my:  
 * [**CV**](https://docs.google.com/document/d/1oD9n-d0ITwTuDw2pivpyQBbMgs3NkKc6HgJohfIdzog/edit?usp=sharing)  
